@@ -1,0 +1,2 @@
+# Yoga_Slim_7i_AIO_Tab_GDN_Copilot_300x600
+Yoga_Slim_7i_AIO_Tab_GDN_Copilot_300x600
